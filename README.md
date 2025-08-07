@@ -6,3 +6,4 @@ Then our respected principal sir motivated us to work hard so that we can achiev
 Then our chief guest gave us so motivational speech that touched all of our hearts . I ve learned from him that I'd we want to be successful in our life the we should always respect our parents and teachers who are helping us to have a good future secondly I have learned that that there is no alternate to hard work. All the seniors helped us alot to know to about the college. It was so impressive to have the great opportunity to get admissioned in such a great college I feel so lucky to be a part gndec . 
 
 #DAY2
+My second day started with so much motivation. My day was started with my first lecture of exert priya darshni mam who helped me to get rid of my overthinking problems . I ve learned that how to solve my problems to reach our goal. our relationship with our family and friends are also equally important as physical facilities. 
