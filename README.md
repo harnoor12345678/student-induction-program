@@ -8,3 +8,5 @@ Then our chief guest gave us so motivational speech that touched all of our hear
 #DAY2
 My second day started with so much motivation. My day was started with my first lecture of exert priya darshni mam who helped me to get rid of my overthinking problems . I ve learned that how to solve my problems to reach our goal. our relationship with our family and friends are also equally important as physical facilities. 
 Thanks to respected Dr Arvind Dhingra sir.He helped me alot in understanding how actually our friend circle should be . I also learned how to interact with people.He also encourage us to build our personalities as per our career path .
+Allover I realised that now being a part of gndec I have many responsibilities. I will do my best so that I can make my gndec teachers proud.
+##DAY3
