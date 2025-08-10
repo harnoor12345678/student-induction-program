@@ -9,5 +9,8 @@ Then our chief guest gave us so motivational speech that touched all of our hear
 My second day started with so much motivation. My day was started with my first lecture of exert priya darshni mam who helped me to get rid of my overthinking problems . I ve learned that how to solve my problems to reach our goal. our relationship with our family and friends are also equally important as physical facilities. 
 Thanks to respected Dr Arvind Dhingra sir.He helped me alot in understanding how actually our friend circle should be . I also learned how to interact with people.He also encourage us to build our personalities as per our career path .
 Allover I realised that now being a part of gndec I have many responsibilities. I will do my best so that I can make my gndec teachers proud.
+
 ##DAY3
 Our day started in auditorium with a session led by Dr Randhir sir .He helped us to register in github . He helped us in signing up in github and then further we made our account and repository. It helps in doing work practically and professionally. 
+Afternoon-On human universal values
+we had a very beautiful and motivational lecture by Dr priya darshni mam .She taught us many human values for eg we should do meditation and helped us to know what are actual desires and aspirations.The main desire which we all want to fulfil is happiness .money cannot buy happiness money is a materialistic thing which can only buy us physical facilities. Our relationships plays vital role in our life . She taught us to spend time with our family as our mental peace and stability depends on our relationship with our family members. 
