@@ -10,3 +10,4 @@ My second day started with so much motivation. My day was started with my first 
 Thanks to respected Dr Arvind Dhingra sir.He helped me alot in understanding how actually our friend circle should be . I also learned how to interact with people.He also encourage us to build our personalities as per our career path .
 Allover I realised that now being a part of gndec I have many responsibilities. I will do my best so that I can make my gndec teachers proud.
 ##DAY3
+Our day started in auditorium with a session led by Dr Randhir sir .He helped us to register in github . He helped us in signing up in github and then further we made our account and repository. It helps in doing work practically and professionally. 
